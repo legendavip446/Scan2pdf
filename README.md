@@ -214,4 +214,4 @@ Scan2PDF is available as a full free version with all features and updates inclu
 Don't miss out on the opportunity to streamline your document management tasks. **Download Scan2PDF today and start converting your images into professional PDFs in no time!**
 
 ---
-**Last updated:** 2026-10-08 22:35:06 UTC
+**Last updated:** 2026-10-09 02:38:00 UTC
